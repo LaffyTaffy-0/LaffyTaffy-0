@@ -1,4 +1,40 @@
-## Hi there 👋
+▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+
+<img width="1289" height="720" alt="Image" src="https://github.com/user-attachments/assets/b66a3195-bf44-45bb-b723-fff2609a4cb6" />  
+
+
+' The Show has just begun! '
+
+▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+
+ILY whoever '👑's my ponies
+
+And pls no copying my ponies eg. one of my no named ones🤧
+
+![20260502_135907.jpg](https://github.com/user-attachments/assets/0a735ee4-9d85-4c45-b5b7-502b9dc6e508)
+
+I am chill with C+H or Cuddle + Hide ,,, Tho keep in mind I will be afk half of the time and will disconnect :/
+
+**DNI... if.**
+
+🐾 . Me ^ω^ , c*h <- Has no stated git user, shmilk cosplayer.
+
+⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
+
+Location? Either at Crk area , Docks/Rping at Islands , Hermit Hill or at Safe Russian server #1 building smt with supporter tier party ppl
+
+
+
+I am a fast typer so I tend to make typos while typing in chat 🤧
+
+
+
+Ships I support:
+I love Dessert Duo, PureTime & PureLily, Treebark duo, Spyglass duo, SilentFaerieLily, TimeLily, RadioStatic/RadioSilence, RadioApple❤
+
+▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+
+Ty for reading! 🥺
 
 <!--
 **LaffyTaffy-0/LaffyTaffy-0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
