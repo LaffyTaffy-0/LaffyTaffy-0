@@ -15,13 +15,13 @@ And pls no copying my ponies eg. one of my no named ones🤧
 
 I am chill with C+H or Cuddle + Hide ,,, Tho keep in mind I will be afk half of the time and will disconnect :/
 
-**DNI... if.**
+**DNI... if.** ( I normally dont do DNI's )
 
-🐾 . Me ^ω^ , c*h <- Has no stated git user, shmilk cosplayer.
+Dandys world ppl that I clearly dont know , darkshippers ew, proshippers , fruitcake dni unless friend ofcourse .
 
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-Location? Either at Crk area , Docks/Rping at Islands , Hermit Hill or at Safe Russian server #1 building smt with supporter tier party ppl
+Location? Either at Crk area , Docks/Rping at Islands , Hermit Hill , Spawn , At the bottom beach for pearl hunting !!
 
 
 
@@ -30,11 +30,17 @@ I am a fast typer so I tend to make typos while typing in chat 🤧
 
 
 Ships I support:
-I love Dessert Duo, PureTime & PureLily, Treebark duo, Spyglass duo, SilentFaerieLily, TimeLily, RadioStatic/RadioSilence, RadioApple❤
+I love Dessert Duo, PureTime & PureLily, Treebark duo, Spyglass duo, SilentFaerieLily, TimeLily, RadioStatic/RadioSilence, RadioApple. 
+
+P.S I do not support any ship in dandys world so bare with me
 
 ▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
 
-Ty for reading! 🥺
+Kin : White Lily Cookie & Time Keeper Cookie ( Formerly Kwazii kin )
+
+▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
+
+Ty for reading! 
 
 <!--
 **LaffyTaffy-0/LaffyTaffy-0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
