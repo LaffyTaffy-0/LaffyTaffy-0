@@ -43,6 +43,10 @@
 
 <p align="center"> <img width="70" height="70" alt="Untitled430" src="https://github.com/user-attachments/assets/68aa3f70-13fa-4382-b34e-408d087092d0" />
 
+> [!NOTE]
+> DNCOPY my avatars! Please and thank you!!
+
+
 --- 
 
 Have a good day! (The spyglass is now all yours ^_^)
