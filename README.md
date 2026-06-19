@@ -19,6 +19,30 @@
   </tr>
 </table>
 
----
+ᴍʏ ᴍᴇɴᴛᴀʟɪᴛʏ ᴄᴏʀᴇ ᴀᴋᴀ ᴍʏ ᴋɪɴ (s)
 
-The process is not processing (WIP)
+<img width="65" height="60" alt="17818568296504662812896888719472" src="https://github.com/user-attachments/assets/5ec69bb2-c42e-4b05-a124-49860adf921c" />
+
+<img width="60" height="60" alt="17818568855355829185625343818717" src="https://github.com/user-attachments/assets/7c5657ff-5712-42eb-b2fb-4177472fa394" />
+
+ᴛʜᴇsᴇ sɪʟʟɪᴇs ᴛᴏᴏ!
+
+<img width="60" height="60" alt="17818569607727941242755004059094" src="https://github.com/user-attachments/assets/2f40631d-2193-4fbf-817d-4972b153c116" /> ﹠ <img width="60" height="60" alt="17818570070684467271703400502528" src="https://github.com/user-attachments/assets/eb479dcd-a2a6-4200-9a4b-f7a08ed24105" />
+
+<table align="center">
+  <tr>
+    <td align="center">
+       In a lot of fandoms!! Huzzah!
+    </td>
+  </tr>
+</table>
+
+<p align="center">
+  <img width="50" height="30" alt="17818583079074201518676264918012" src="https://github.com/user-attachments/assets/db98421c-747e-4943-b2c8-7e260172d727" />
+</p>
+
+<p align="center"> <img width="70" height="70" alt="Untitled430" src="https://github.com/user-attachments/assets/68aa3f70-13fa-4382-b34e-408d087092d0" />
+
+--- 
+
+Have a good day! (The spyglass is now all yours ^_^)
