@@ -15,7 +15,7 @@
      Feel free to c+h! Unless if I have a stated Dniuf in my avatar name (Mostly used for DW fndm)
    
      Safe Server
-     Locations! MCYT, CRK, TADC/MD, Bakery, Spawn aaand Spawn!
+     Locations! MCYT, CRK, TADC/MD, Outside of Bakery, aaand Spawn!
   </tr>
 </table>
 
