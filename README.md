@@ -45,7 +45,9 @@
 
 > [!NOTE]
 > DNCOPY my avatars! Please and thank you!!
+> 
 > DNI Dandys world fandom unless friend ofcourse
+> 
 > GO AWAY DARKSHIPPERS/PROSHIPPERS *pukes rainbow acid*
 
 --- 
