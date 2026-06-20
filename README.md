@@ -6,7 +6,11 @@
   </tr>
 </table>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=200&color=3A3A6E&vCenter=true&width=435&lines=In+the+end+only+silence+will+remain...)](https://git.io/typing-svg)
+<p align="center">
+  <a href="https://git.io/typing-svg">
+    <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=200&color=3A3A6E&vCenter=true&width=435&lines=In+the+end+only+silence+will+remain..." alt="Typing SVG" />
+  </a>
+</p>
 
 <table>
   <tr>
