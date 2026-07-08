@@ -48,10 +48,7 @@
 <p align="center"> <img width="70" height="70" alt="Untitled430" src="https://github.com/user-attachments/assets/68aa3f70-13fa-4382-b34e-408d087092d0" />
 
 > [!NOTE]
-> DNCOPY/Screenshot my avatars! Please and thank you!!
-> 
-> DNI Dandys world fandom unless friend ofcourse
->
+> DNCOPY/Screenshot/Post my avatars! Please and thank you!!
 > GO AWAY DARKSHIPPERS/PROSHIPPERS *pukes rainbow acid*
 
 --- 
