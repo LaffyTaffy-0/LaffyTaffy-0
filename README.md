@@ -1,9 +1,7 @@
 HUGGGGGGGGEEEEEEEEE WIP :3C
 
-<p align="center">
-  <img src="https://komarev.com&color=E647BB" alt="Profile Views" />
-</p>
-
+ ![](https://komarev.com/ghpvc/?username=LaffyTaffy-0&base=0&label=flowers&color=e647bb)
+    
 <img width="1080" height="1030" alt="Untitled556" src="https://github.com/user-attachments/assets/e56414d3-f148-4807-b533-3b0998c9d9fe" />
 
 <a href="https://forgive-and-forget.straw.page"> <img width="200" height="200" alt="Untitled557_20260902180156" src="https://github.com/user-attachments/assets/7e578056-2ac5-443b-9c37-f7031d43420e" /> </a> <a href="https://forgive-and-forget.straw.page"> <img src="IMAGE_URL_2" width="200"></a>
