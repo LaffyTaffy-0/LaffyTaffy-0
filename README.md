@@ -12,7 +12,7 @@ HUGGGGGGGGEEEEEEEEE WIP :3C
 
 </div>
 
-<a href="https://forgive-and-forget.straw.page"> <img width="200" height="200" alt="Untitled557_20260902180156" src="https://github.com/user-attachments/assets/7e578056-2ac5-443b-9c37-f7031d43420e" /> </a> <a href="(https://fishingforafishthatdoesntexist.atabook.org/)"> <img width="200" height="200" alt="Untitled557_20260906145830" src="https://github.com/user-attachments/assets/11859e38-11cc-4d8c-b299-cb638a90ccdd" />
+<a href="https://forgive-and-forget.straw.page"> <img width="200" height="200" alt="Untitled557_20260902180156" src="https://github.com/user-attachments/assets/7e578056-2ac5-443b-9c37-f7031d43420e" /> </a> <a href="https://fishingforafishthatdoesntexist.atabook.org/"> <img width="200" height="200" alt="Untitled557_20260906145830" src="https://github.com/user-attachments/assets/11859e38-11cc-4d8c-b299-cb638a90ccdd" />
 
 <img width="50" height="50" alt="Untitled558_20260902175430" src="https://github.com/user-attachments/assets/b335245b-5537-470b-809f-eb86ae4bd10f" />
 
