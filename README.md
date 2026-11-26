@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://komarev.com/ghpvc/?username=LaffyTaffy-0&base=0&label=flowers&color=e647bb" alt="Petals fallen">
+  <img src="https://komarev.com/ghpvc/?username=LaffyTaffy-0&base=0&label=Petals%20fallen&color=e647bb" alt="Petals fallen">
 </div>
     
 <img width="1080" height="1030" alt="Untitled556" src="https://github.com/user-attachments/assets/e56414d3-f148-4807-b533-3b0998c9d9fe" />
